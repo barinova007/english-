@@ -8,10 +8,6 @@
 
 ## https://www.youtube.com/playlist?list=PL66DIGaegedqtRaxfVsk6vH5dBDuL5w92 - Полиглот
 
-## https://play.google.com/store/apps/details?id=com.kirson.poliglot16 или
-
-## https://play.google.com/store/apps/details?id=org.zencat.polyglot (это немного сложнее)
-
 ## https://www.howtolearnenglishinlevels.com/?utm_source=NiLMenu
 
 ## https://www.robinsoncrusoeinlevels.com/?utm_source=NiLMenu (можно выбирать уровень сложности)

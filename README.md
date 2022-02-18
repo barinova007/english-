@@ -6,7 +6,7 @@
 
 ## https://ru.language.exchange/friend/barinova007 - Language.Exchange
 
-## https://www.youtube.com/playlist?list=PL66DIGaegedqtRaxfVsk6vH5dBDuL5w92
+## https://www.youtube.com/playlist?list=PL66DIGaegedqtRaxfVsk6vH5dBDuL5w92 - Полиглот
 
 ## https://play.google.com/store/apps/details?id=com.kirson.poliglot16 или
 

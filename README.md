@@ -8,6 +8,6 @@
 
 ## https://www.youtube.com/playlist?list=PL66DIGaegedqtRaxfVsk6vH5dBDuL5w92 - Полиглот
 
-## https://www.howtolearnenglishinlevels.com/?utm_source=NiLMenu
+## https://www.howtolearnenglishinlevels.com/?utm_source=NiLMenu - тексты
 
-## https://www.robinsoncrusoeinlevels.com/?utm_source=NiLMenu (можно выбирать уровень сложности)
+## https://www.robinsoncrusoeinlevels.com/?utm_source=NiLMenu (тексты, можно выбирать уровень сложности)
